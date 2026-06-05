@@ -1,0 +1,1 @@
+# NotUygulamas--G-venlik
